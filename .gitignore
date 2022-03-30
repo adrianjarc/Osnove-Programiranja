@@ -1,0 +1,9 @@
+# JAVA SMETI
+*.class
+
+# ARHIVI
+*.zip
+*.rar
+*.tar
+*.tar.gz
+*.7z

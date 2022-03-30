@@ -1,0 +1,1 @@
+癤풲ukaj je Baza seminarske naloge in 2 njeni dograditvi. S 3. dograditvijo se mi ne da ukvarjat 훾eprav sem jo imel polovi훾no prav. Lahko pa prosite osebo [Marko Ko훾evar] (http://www.facebook.com/marko.kocevar), ki je use re쉏l 100%.

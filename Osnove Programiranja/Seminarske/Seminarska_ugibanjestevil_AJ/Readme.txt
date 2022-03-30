@@ -1,0 +1,1 @@
+Tukaj sem dal kako bi jaz naredil programèek za ugibanje števil za vse. ki imate to kot seminarsko nalogo. Upam da vam je v pomoè.

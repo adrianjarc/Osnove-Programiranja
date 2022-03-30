@@ -1,0 +1,1 @@
+Tukaj sem dodal dodatek k seminarski nalogi ki smo ga dobili pri vajah. To je bila prva dodatna naloga.
